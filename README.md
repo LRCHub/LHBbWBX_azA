@@ -1,0 +1,55 @@
+# Maroon 5 – She Will Be Loved
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:14.24] Beauty queen of only eighteen
+[00:16.39] She had some trouble with herself
+[00:19.43] He was always there to help her
+[00:23.28] She always belonged to someone else
+[00:27.41] I drove for miles and miles and wound up at your door
+[00:35.26] I've had you so many times but somehow I want more
+[00:42.95] I don't mind spending every day
+[00:50.66] Out on your corner in the pouring rain
+[00:54.82] Look for the girl with the broken smile
+[00:59.05] Ask her if she wants to stay awhile
+[01:04.53] And she will be loved
+[01:08.93] And she will be loved
+[01:14.44] Tap on my window, knock on my door
+[01:21.10] I want to make you feel beautiful
+[01:24.30] I know I tend to get so insecure
+[01:30.31] It doesn't matter anymore
+[01:34.22] It's not always rainbows and butterflies
+[01:40.23] It's compromise that moves us along, yeah
+[01:44.59] My heart is full and my door's always open
+[01:49.88] You come anytime you want, yeah.
+[01:55.47] I don't mind spending every day
+[01:59.05] Out on your corner in the pouring rain
+[02:03.70] Look for the girl with the broken smile
+[02:09.03] Ask her if she wants to stay awhile
+[02:13.14] And she will be loved
+[02:16.97] And she will be loved
+[02:23.19] And she will be loved
+[02:25.78] And she will be loved
+[02:31.60] I know where you hide alone in your car
+[02:38.09] Know all of the things that make you who you are
+[02:41.67] I know that goodbye means nothing at all
+[02:47.54] Comes back and begs me to catch her every time she falls
+[02:51.29] Yeah
+[02:57.79] Tap on my window knock on my door
+[03:00.33] I want to make you feel beautiful
+[03:08.50] I don't mind spending every day
+[03:10.36] Out on your corner in the pouring rain, oh.
+[03:15.69] Look for the girl with the broken smile
+[03:20.97] Ask her if she wants to stay awhile
+[03:23.89] And she will be loved
+[03:29.24] And she will be loved
+[03:33.80] And she will be loved
+[03:38.51] And she will be loved
+[03:41.79] Please don't try so hard to say goodbye
+[04:10.51] Please don't try so hard to say goodbye
+[04:13.82] Yeah, yeah.
+[04:14.90] I don't mind spending every day
+[04:15.93] Out on your corner in the pouring rain
+[04:16.65] Please don't try so hard to say goodbye
+```
